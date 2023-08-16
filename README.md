@@ -1,1 +1,1 @@
-# paid_scripts
+# Leaked paid scripts for CS:GO gamesense
